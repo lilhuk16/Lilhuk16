@@ -1,2 +1,2 @@
 https://www.google.com
-https://math-help.awiki.org/
+https://educational-solutions.ukintech.com
